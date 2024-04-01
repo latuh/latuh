@@ -1,1 +1,3 @@
-![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=latuh&layout=compact&theme=dark)
+i'll do this on... well... uhh... i'll do it when i have time
+
+dm me on discord: latitudeh
